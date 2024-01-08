@@ -1,4 +1,4 @@
-## Nextlabs Sdn Bhd
+## NextLabs (Malaysia) Sdn Bhd
 
 Welcome 👋
 
